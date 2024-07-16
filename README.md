@@ -1,6 +1,6 @@
 # lucius_forever_VR_AR_ZOMBIE_reality
 
-prg for INSTAGRAM:
+prj for INSTAGRAM:
 <h1><hr>Lucius_Forever: НОВАЯ ЖИЗНЬ СТАРОГО СЕРАЛА!</h1>
 
 Только для фанатов сериала: «Звёздные врата́: Атланти́да»S03E03 
