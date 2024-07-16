@@ -7,5 +7,5 @@ prj for INSTAGRAM:
 
 ВТОРОЕ ПРИШЕСТВИЕ Люшиса - разбор психотехнологий подмен реальности: VR/AR ZOMBIE reality
 
-https://www.instagram.com/lucius_forever/
+<a href=https://www.instagram.com/lucius_forever/ target=_blank>https://www.instagram.com/lucius_forever/</a>
 <h1><hr></h1>
